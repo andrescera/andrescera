@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working at @inScreen<br>
+🔭 I’m currently working at [@inScreen](https://github.com/inscreen)<br>
 
 
 ## 🌐 Socials:
