@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working at [@Celerik](https://www.celerik.com)<br>
+🔭 I’m currently looking for new opportunities
 
 
 ## 🌐 Socials:
